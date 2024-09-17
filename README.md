@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @deepanshhcoder
+- 👀 I’m interested in playing badminton , listening to music
+- 🌱 I’m currently learning python
+- 📫 How to reach me 7060844406
+- 😄 Pronouns: deep
+- ⚡ Fun fact: python lover
